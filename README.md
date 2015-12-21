@@ -118,5 +118,5 @@ Check out these slide decks for handy Github & git tips:
 
 
 Nova Semler-- Event Planner
-http://www.winkslondon.com/
+http://quoteshunter.com/sad-quotes/ 
 
